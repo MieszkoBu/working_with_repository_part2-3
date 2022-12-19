@@ -1,2 +1,2 @@
 # Jestem Mieszko Buczkowski
-## Konsole i komputery retro
+## Moje hobby to Konsole i komputery retro
